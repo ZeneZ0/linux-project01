@@ -1,59 +1,71 @@
-# Decadance - Disturbed
+# pyrokinesis - Виа Долороса
 
-Say, yes, they know that you've hurt yourself another time
-Don't they know that you're full of pain already?
-Yes, they know that you've hurt yourself another time
-Decadence isn't easy, is it?
-Yes, they know that you've hurt yourself another time
-Don't they know that you're full of pain already?
-Yes, they know that you've hurt yourself another time
-Decadence isn't easy
-
-Then, you slowly recall all your mind
-Why your soul's gone cold
-And all hope has run dry
-***Dead inside***
-Never enough to forget that
-You're one of the lonely
-Slowly recall all your mind
-
-
-Say, yes, they know that you've hurt yourself another time
-Don't they know that you're full of pain already?
-Yes, they know that you've hurt yourself another time
-Decadence isn't easy, is it?
-Yes, they know that you've hurt yourself another time
-Don't they know that you're full of pain already?
-Yes, they know that you've hurt yourself another time
-Decadence isn't easy
-
-
-Then, you slowly recall all your mind
-Why your soul's gone cold
-And all hope has run dry
-Dead inside
-Never enough to forget that
-You're one of the lonely
-Slowly recall all your mind
-
-
-If I scare you now, don't run from me
-I've been hiding my pain, you see?
-Said, if I scare you now, don't run from me
-I've been hiding my pain, you see?
-
-
-You slowly recall all your mind
-Why your soul's gone cold
-And all hope has run dry
-Dead inside
-Never enough to forget that
-You're one of the lonely
-Slowly recall all your mind
-Then, slowly recall all your mind
-
-
-Say, yes, they know that you've hurt yourself another time
-Don't they know that you're full of pain already?
-Yes, they know that you've hurt yourself another time
-Decadence isn't easy, is it?
+Для неё на раз
+Возьми, да спой
+На два зови пустой
+На три помни такой
+Но забудь на четыре её черты
+И сразу на пять скорбить
+На шесть опять любить
+На семь распять и гнить
+Но где черны, там черви
+Мы так притворяемся издавно
+Клоуны устали бить в бубны
+Тут все ждут, когда явится избранный
+Веселить публику
+А дело не хитро, все ахнув, прикроют уста
+Когда вкусившие плоть вдруг подавятся кровью Христа
+А там
+Я крест себе воздвиг нерукотворный
+В разрезе сути нет и мысли все идут от формы
+Мой бутафорный дом, прости, но я вгоню кол из осины
+В свою грудь
+Сохрани, спаси, но милую забудь (И не вспоминай)
+Виа Долороса
+И я воздвигну крест нерукотворный
+Тропа скорби
+Он стоит там, где не так уж и давно все лили слёзы
+А я иду теперь по ним и не пролью свои (Свои не пролью)
+Виа Долороса
+И я воздвигну крест нерукотворный
+Тропа скорби
+Он стоит там, где не так уж и давно все лили слёзы
+А я иду теперь по ним и не пролью свои (Свои не пролью)
+На раз одной рукой
+На два другой рукой
+На три я как не бил
+Но только попадает мимо молоток
+Ломаются, гнутся гвозди
+Ругаюсь, у нас давно
+Разлагаясь, гниют все кости
+Кубики от которых
+Вращается шар земли
+Человек это просто кость игровая
+Но шаг за ним, так что выполните бросок
+И бросайте всё то, что есть
+И бросайте прямо в костёр
+Если выпадет цифра шесть
+(Один шесть, один шесть)
+У моей любви одна угроза
+Там на вид, дорога в ад
+Точь-в-точь, как Виа Долороса
+Как не спутать и где розы прорастут
+Им нужно дать особый корм
+И я себе воздвигну крест нерукотворный
+Чтобы их прокормить
+Виа Долороса
+И я воздвигну крест нерукотворный
+Тропа скорби
+Он стоит там, где не так уж и давно все лили слёзы
+А я иду теперь по ним и не пролью свои (Свои не пролью)
+Виа Долороса
+И я воздвигну крест нерукотворный
+Тропа скорби
+Он стоит там, где не так уж и давно все лили слёзы
+А я иду теперь по ним и не пролью свои (Свои не пролью)
+Опять затянет разговор
+Но столько лет одно и тоже
+Как тут верить чудесам?
+И я б себе воздвиг там крест нерукотворный
+И моя дорога скорби
+И я шагаю по слезам (И не пролью свои)
